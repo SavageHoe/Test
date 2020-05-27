@@ -1,1 +1,1 @@
-# Test
+# MINE RULE
